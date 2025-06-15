@@ -1,0 +1,3 @@
+-contant geld
+- sumup betaal machine 20€ : https://www.carrefour.es/datafono-sumup-bluetooth-air-lector-de-tarjetas/VC4A-16063869/p
+- contant geld
